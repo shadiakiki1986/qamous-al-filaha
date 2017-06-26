@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # 3bdoo Al 2achqar
 
 ## \2016-12-18\ 

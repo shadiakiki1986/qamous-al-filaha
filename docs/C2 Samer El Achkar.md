@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # Samer El Achkar
 
 ## 2017/01/15
