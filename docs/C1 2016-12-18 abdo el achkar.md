@@ -1,4 +1,4 @@
-<style>text-align:right;</style>
+<style>html { direction:rtl; }</style>
 
 2016-12-18 عبدو الأَشقَر
 
