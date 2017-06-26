@@ -11,10 +11,15 @@
 5. Almassaas: 3aSaat- Taweelat- talkushu alththoor lilfilaa7at-, wa fee qa3rihaa mij7aaf yunaZZifu alsikkat-
 
 6. AlSSimdu wa elnneer: ma3 al faddaan yu2allifaan 3iddat- elfilaa7at-
+
 yata2allafu alSSimdu min alqaTriib, alddakar, alkaaboosat-, alssikkat-. ( ounZur rasm 2 )
+
 yata2allafu alnneer min 4 2aDlaa3, kullu Dil3 minhaa yud3aa- alssimbak, waal7ilqat-, waaelshshir3at-. 2unZur rasm 3
+
 yattaSil elSSimd bi alnneer min khilaal al7ilqat-
+
 yattaSil alnneer bi alfiddaan biwaasiTat- simbukayn likulli fiddaan (rasm 1)
+
 Alfallaa7 huwa qaa2idu al3amaliyyat- biwaasiTat- waD3 yadahu 3ala alkaaboos, wafii alyadi al2ukhra- ya7milu almassaas (5)
 
 alssikkat- hiya quT3at- mukawwanat- min al7adeed wa hiya mujawwafat- 7aythu yadkhulu fiihaa alSSimdu wahya zhaat jinaa7ayn wa lahaa ra2s bishakli alssahmi likay tatamakkaN min shaqqi al2arD bi alfilaa7At-
