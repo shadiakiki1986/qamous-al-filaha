@@ -1,4 +1,6 @@
-\2016-12-18\ 3bdoo Al 2achqar
+# 3bdoo Al 2achqar
+
+## \2016-12-18\ 
 
 1. Taab alyad: al 2arDu aSba7at Saali7at- lilfilaa7at-
 
@@ -43,3 +45,24 @@ alssikkat- hiya quT3at- mukawwanat- min al7adeed wa hiya mujawwafat- 7aythu yadk
 15. alddiraasat- : Ta7n aghmaar alssanaabil fii albaydar biwaasiTat- alnnawraj
 
 16. Alnnawraj: bi al3aammiyyat- "mawraj", wahwa khashabat- samiikat- 4 sm wa Tool mitr wa nuSf almitr wa 3ard 80 sm maghroosat- 3ala mada- qafaah 2a7jaar Suwwaaniyyat-. yufiid biqaSS wa sa7q 2aghmaar alssanaabil
+
+## 2017-03-19
+
+17. Samlookha: 3ala ka3b el nabte, btenbot el samlookha. Byotla3 fire3 sgheer 3ala ka3b el nabte.
+
+18. Al thilm el a3waj min el tawr el kbeer
+
+19. Min ba3d kdeeshe ma byenbot 7asheesh
+
+20. zanbe 3a janbe
+
+21. la t2ool fool la yseer bil makyool
+
+22. man talaba el a3ali, sahira el layali
+
+23. khabbe 2ershak el abyad la yawmak el aswad
+
+## 2017-06-17
+
+24. namliyyi: khzene msharrata bi7atto fiya ghrad, tu3allaq fi saqef, ta3zulu el rutooba w al 7arara
+
