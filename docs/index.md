@@ -3,7 +3,7 @@ layout: post
 title: Index
 ---
 
-# فَهرَس
+# فَهرَس ([pdf](qamous-al-filaha.pdf))
 * [Chapter 1. عبدو الأَشقَر](C1 Abdo El Achkar.md) ([pdf](C1 Abdo El Achkar.md.pdf))
 * [Chapter 2. سامر الاشقَر](C2 Samer El Achkar.md) ([pdf](C2 Samer El Achkar.md.pdf))
 * [Chapter 3.  سَمير الاشقَر](C3 Samir El Achkar.md) ([pdf](C3 Samir El Achkar.md.pdf))
