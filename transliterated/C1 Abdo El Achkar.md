@@ -50,25 +50,22 @@ alssikkat- hiya quT3at- mukawwanat- min al7adeed wa hiya mujawwafat- 7aythu yadk
 
 ## 2017-03-19
 
-17. Samlookha: 3ala ka3b el nabte, btenbot el samlookha. Byotla3 fire3 sgheer 3ala ka3b el nabte.
+17. Samlookhat- : 3ala ka3b el nabtet-, btenbot el Samlookha. ByoTla3 fire3 Sgheer 3ala ka3b el nabtet-.
 
-18. Al thilm el a3waj min el tawr el kbeer
+18. Al thilm el a3waj min el thawr el kbeer
 
-19. Min ba3d kdeeshe ma byenbot 7asheesh
+19. Men ba3d kdeeshee maa byenbot 7asheesh                       
 
-20. zanbe 3a janbe
+20. zanbak 3ajanbak
 
-21. la t2ool fool la yseer bil makyool
+21. la tqool fool la ySeer bil makyool                         
 
-22. man talaba el a3ali, sahira el layali
-
-23. khabbe 2ershak el abyad la yawmak el aswad
+22. man Talaba el a3aalee, sahira el layaalee
+                                                               
+23. khabbee qershak el abyaD layawmak el aswad
 
 ## 2017-06-17
 
-24. namliyyi: khzene msharrata bi7atto fiya ghrad, tu3allaq fi saqef, ta3zulu el rutooba w al 7arara
-
+24. namliyyit- : khzaanat- msharraTat- tooDa3 fiihaa aghraaD, tu3allaq fii alsaqef, ta3zulu el ruToobat- w al 7araarat-
 
 26. alqarTal: sall kabeer liqaTf el3inabi mathalan
-
-

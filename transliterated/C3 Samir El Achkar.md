@@ -1,16 +1,16 @@
-# Samir El Achkar
+# samiir El Achqar
 
 ## 2017-04-09
-1. Al 3afooq: 7ashara bteje 3ala shatlet el banadoora w el khyaar, w btekela min ka3ba
+1. Al 3aafooq: 7asharat- tastahdifu shatlet- el banadoorat- w el khyaar, w ta2kuluhaa min ka3bihaa
 
-2. Al mehmez: yooda3 bi ka3b sobbat el khiyyel ta yerfos el 7san
+2. Al mehmaaz: yooDa3 fi ka3b Sobbaat el khayyaal liyarfos el 7iSaan
 
-3. (Common with Abdo) Al jesr: al khashabet- al dakhma allati tarbot al bayt min awwalaho 2ila 2akhirihi
+3. (ma3 3abdoo) Al jesr: al khashabet- al Dakhmat- alatee tarboT al bayt min awwalihi 2ila 2aakhirihi
 
-Kayfa kana yu7mal fi al maadii? 3 ton. Min khilaal el 3awna.
+kayfa kaana yu7mal fii al maaDii? 3 Tonn. Men khilaal el 3awnat-.
 
-Kana 10-15 shabb yatajamma3oon w yjeebo ghosn snawbar 2awe taweel shi 2 meters, y7attoo bil 3ard kil 4-5 meters wahde, yerbtoo bil jesr, w yoo2afo min kil mayle.
+kaana 10-15 shaab yatajamma3oon w yajliboon ghoSn Snawbar qawiyy wa Taweel 7awaalii 2 meter, tooDa3 waa7dat- fii al3arD kul 4-5 meter, turbaT fii aljesr, w yaqifoon min kulli maylat-.
 
-Kano yerbto el jisr bi 7abel, w y7att el 7abel 3ala ra2ebto, w jesr 3al dahron, w 3aweet w bahwara w shadd. Baddon yetla3o bil 7a2el.
+kaaanooaa yarbitoon el jisr bi 7abel, w yaDi3oon el 7abel 3ala alraqbat-, w aljesr 3ala- Zahrihom. kana yatakhallal al 3amaliyyat- 3aweeTun w bahwarat-un wa shadd li 2ajl alTuloo3 fii al 7aqel.
 
-4. Al naqda: 
+4. Al naqDat- :

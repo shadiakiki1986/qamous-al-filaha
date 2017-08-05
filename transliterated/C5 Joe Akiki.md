@@ -1,23 +1,22 @@
-# Joe Akiki
+# Joo 3aqiiqii
 
 ## 2017-06-17
 
-31. Al kidne: al masaa7a allati yumkino 3ala el thawr an yafla7uha fii yawm wahed
+31. Al kidnet- : al masaa7at- alatii yumkino 3ala el thawr an yafla7uhaa fii yawm waa7ed
 
-32. skamla: tawle
+32. skamlat- : Taawlat-
 
 ## 2017-07-01
 
-28. 7ad el 7ayyet- frosh w naam, w 7ad el 3a2rab ma t2arreb
+28. 7ad el 7ayyet- froosh w naam, w 7ad el 3aqrab maa tqarreb
 
-29. 2onfod: 7ayawan ya7for tunnels ta7t el 2arD 3ala shakli madiinat-
+29. qonfodh: 7ayawaan ya7for qanaaTir ta7t el 2arD 3ala shakli madiinat-
 
-30. al7anash: muzhakkar al7ayyat-. El 7anash ma bya32aS
+30. al7anash: muzhakkar al7ayyat-. El 7anash maa bya3qaS
 
-31. na22afet-: kanoo yanqufoon althawri min masaafat- likay yamshii 2izhaa kana laa yamshii
+31. naqqaafet- : kaanooaa yanqufoon althawri min masaafat- likay yamshii 2izhaa tawaqqafa 3an elfilaa7at-
 
-32. almi72aan: al khazzaan al Sagheer allazhii yumla2 min miyaah el shitaa2 aw min Tareeqatin 2ukhra lissiqaayat- fi waqt el sha77
+32. almi7qaan: al khazzaan al Sagheer alazhii yumla2 min miyaah el shitaa2 aw min Tareeqat- 2ukhra- lilssiqaayat- fii waqt el sha77
 
-33. Al7aakourat-: jall Sagheer bishakli daa2irat- yooDa3 fiihi alqam7 likay yafSulu almi7raath alqam7 3an alsha3eer
+33. Al7aakoorat- : jall Sagheer bishakli daa2irat- yooDa3 fiihi alqam7 likay yafSulu almi7raath alqam7 3an alsha3eer
 
-33.
