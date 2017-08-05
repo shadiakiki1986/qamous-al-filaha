@@ -68,3 +68,6 @@ alssikkat- hiya quT3at- mukawwanat- min al7adeed wa hiya mujawwafat- 7aythu yadk
 
 24. namliyyi: khzene msharrata bi7atto fiya ghrad, tu3allaq fi saqef, ta3zulu el rutooba w al 7arara
 
+25. Al7aakourat-: jall Sagheer bishakli daa2irat-
+
+26. alqarTal: sall kabeer liqaTf el3inabi mathalan
