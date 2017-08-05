@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # مُنير سَعد
 
 ## 2017-01-15

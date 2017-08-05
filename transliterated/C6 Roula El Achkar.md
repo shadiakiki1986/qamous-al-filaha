@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # roolaa al2ashqar
 
 30. wqeesat- : shadeed el wasakh

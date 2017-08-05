@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # جو عَقيقي
 
 ## 2017-06-17

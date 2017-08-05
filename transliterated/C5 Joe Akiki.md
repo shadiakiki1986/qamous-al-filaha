@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # Joo 3aqiiqii
 
 ## 2017-06-17

@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # muniir sa3d
 
 ## 2017-01-15

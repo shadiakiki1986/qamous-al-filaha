@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 # رولا الأَشقَر
 
 ٣٠. وقيسَة : شَديد الوَسَخ

@@ -1,3 +1,5 @@
+<style>html { direction:rtl; }</style>
+
 #  سَمير الاشقَر
 
 ## 2017-04-09
